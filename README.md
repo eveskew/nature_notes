@@ -13,6 +13,20 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 ---
 
 
+### Joan Didion, *Slouching Towards Bethlehem* (1968)
+
+- "The future always looks good in the golden land, because no one remembers the past." - pg. 4
+
+- "In fact that is what I want to tell you about: what it is like to come from a place like Sacramento. If I could make you understand that, I could make you understand California and perhaps something else besides, for Sacramento *is* California, and California is a place in which a boom mentality and a sense of Chekhovian loss meet in uneasy suspension; in which the mind is troubled by some buried but ineradicable suspicion that things had better work here, because here, beneath that immense bleached sky, is where we run out of continent." - pg. 172
+
+  - Similar to Terry Tempest Williams' comment about Americans having run out of continent to occupy
+  
+- "All that is constant about the California of my childhood is the rate at which it disappears." - pg. 176
+
+- "We went to get away from ourselves, and the way to do that is to drive, down through Nogales some day when the pretty green places pall and all that will move the imagination is some place difficult, some desert." - pg. 214
+
+- "It is hard for people who have not lived in Los Angeles to realize how radically the Santa Ana figures in the local imagination. The city burning is Los Angeles's deepest image of itself: Nathanael West perceived that, in *The Day of the Locus*; and at the time of the 1965 Watts riots what struck the imagination most indelibly were the fires. For days one could drive the Harbor Freeway and see the city on fire, just as we had always known it would be in the end. Los Angeles weather is the weather of catastrophe, of apocalypse, and, just as the reliably long and bitter winters of New England determine the way life is lived there, so the violence and the unpredictability of the Santa Ana affect the entire quality of life in Los Angeles, accentuate its impermanence, its unreliability. The wind shows us how close to the edge we are." - pg. 221
+
 ### Terry Tempest Williams, *An Unspoken Hunger* (1994)
 
 - "There is no such thing as waste except in the world of man." - pg. 8
@@ -222,7 +236,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 - Outlines an aesthetic value of nature
 
 
-### John Muir 1876, [God’s first temples](https://scholarlycommons.pacific.edu/cgi/viewcontent.cgi?article=1021&context=jmb)
+### John Muir, [God’s first temples](https://scholarlycommons.pacific.edu/cgi/viewcontent.cgi?article=1021&context=jmb) (1876)
 
 - Like Emerson, values nature for its intrinsic beauty, as a place of worship and renewal
 
@@ -239,7 +253,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 - Gets at issues related to human vs. natural disturbances and the temporal differences between them (i.e., human changes are usually very fast, natural ones slower) 
 
 
-### John Muir 1912, [Hetch Hetchy Valley](https://vault.sierraclub.org/john_muir_exhibit/writings/the_yosemite/chapter_16.aspx)
+### John Muir, [Hetch Hetchy Valley](https://vault.sierraclub.org/john_muir_exhibit/writings/the_yosemite/chapter_16.aspx) (1912)
 
 - What is the history of Hetch Hetchy Valley?
 	
@@ -256,7 +270,25 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 	- Makes references to the New and Old Testament (the Temple and the Garden of Eden) as places where human greed has spoiled something good
 
 
-### Aldo Leopold 1949, [The land ethic](http://oregonstate.edu/instruction/phl201/modules/texts/text3/leopold.html)
+### John Muir, [Cedar Keys](http://www.sierraclub.org/john_muir_exhibit/writings/a_thousand_mile_walk_to_the_gulf/chapter_6.aspx) (1916)
+
+- Ends with a rumination on people who, influenced by religion, view everything on Earth as put there for their consumption and use
+
+- Muir argues that nasty things in nature prove this isn’t true and that we should instead view ourselves as one part of a whole rather than the focus around which everything else revolves
+
+
+### John Muir, [Save the redwoods](http://www.sierraclub.org/john_muir_exhibit/writings/save_the_redwoods_1920.aspx) (1920)
+
+- In the first paragraph he imagines a skinned, dying sequoia tree quoting Jesus from the New Testament
+
+  - Reinforces his religious view of nature and puts the human destruction of nature on the same level as the crucifixion of Jesus
+
+- He also seems to suggest that if everyone could see the glory of nature it would suffer no loss of defenders
+
+  - He apparently was under the belief that nature would be protected for its existence value if this value was more widely known
+  
+
+### Aldo Leopold, [The land ethic](http://oregonstate.edu/instruction/phl201/modules/texts/text3/leopold.html) (1949)
 
 - The idea of the land ethic is Leopold’s primary intellectual contribution to conservation
 
@@ -281,24 +313,6 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 - "Health is the capacity of the land for self-renewal. Conservation is our effort to understand and conserve this capacity."
 
   - Very forward-looking in its concern for ecological processes rather than particular ecological states
-
-
-### John Muir 1916, [Cedar Keys](http://www.sierraclub.org/john_muir_exhibit/writings/a_thousand_mile_walk_to_the_gulf/chapter_6.aspx)
-
-- Ends with a rumination on people who, influenced by religion, view everything on Earth as put there for their consumption and use
-
-- Muir argues that nasty things in nature prove this isn’t true and that we should instead view ourselves as one part of a whole rather than the focus around which everything else revolves
-
-
-### John Muir 1920, [Save the redwoods](http://www.sierraclub.org/john_muir_exhibit/writings/save_the_redwoods_1920.aspx)
-
-- In the first paragraph he imagines a skinned, dying sequoia tree quoting Jesus from the New Testament
-
-  - Reinforces his religious view of nature and puts the human destruction of nature on the same level as the crucifixion of Jesus
-
-- He also seems to suggest that if everyone could see the glory of nature it would suffer no loss of defenders
-
-  - He apparently was under the belief that nature would be protected for its existence value if this value was more widely known
 
 
 ### Cronon 1998, [The trouble with wilderness, or getting back to the wrong nature](https://www.williamcronon.net/writing/Cronon_Trouble_with_Wilderness_1995.pdf)
