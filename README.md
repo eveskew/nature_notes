@@ -12,6 +12,12 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### Sam Shepard, *Day Out of Days* (2010)
+
+- "They say, these days, standing out on the rim of the Grand Canyon, the brightest lights in the night sky are not the stars in the heavens but the glow from casino neon in Las Vegas--one hundred and seventy-five miles away." - pg. 95
+
+- "And the highway itself, now broken up with tall yellow weeds and potholes deep enough to kill a Ford of any kind and, what's even more revealing, is that now the dead highway seems to be returning to the ancient buffalo trace beneath it where someone must have tried to copy the migrations of vast herds that once blackened the landscape. Maybe they felt the buffalo knew where they were going even if they themselves didn't have a clue." - pg. 107
+
 ### Peter Matthiessen, *The Snow Leopard* (1978)
 
 - "For a time I watch the coming of the night. A bat chitters and stars loom, and somewhere on the far side of this earth, the sun is burning. Soon Mars appears over the dark split in the northern mountains where the Tarap River comes down from the Land of Dolpo, and in the snug warmth of my sleeping bag, I float under the round bowl of the heavens. Above is the glistening galaxy of childhood, now hidden in the Western world by air pollution and the glare of artificial light; for my children's children, the power, peace, and healing of the night will be obliterated." - pg. 115
