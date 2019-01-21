@@ -12,6 +12,42 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### Annie Dillard, *Pilgrim at Tinker Creek* (1974)
+
+- "We wake, if we ever wake at all, to mystery, rumors of death, beauty, violence.... 'Seem like we're just set down here,' a woman said to me recently, 'and don't nobody know why.'" - pg. 4
+
+- "They're a human product like rayon. They're like a field of shoes." - pg. 6 [on beef cows]
+
+- "The answer must be, I think, that beauty and grace are performed whether or not we will sense them. The least we can do is try to be there." - pg. 10
+
+- "The world's spiritual geniuses seem to discover universally that the mind's muddy river, this ceaseless flow of trivia and trash, cannot be dammed, and that trying to dam it is a waste of effort that might lead to madness. Instead you must allow the muddy river to flow unheeded in the dim channels of consciousness; you raise your sights; you look along it, mildly, acknowledging its presence without interest and gazing beyond it into the realm of the real where subjects and objects act and rest purely, without utterance." - pg. 35
+
+- "Experiencing the present purely is being emptied and hollow; you catch grace as a man fills his cup under a waterfall." - pg. 82
+
+- "The wonder is--given the errant nature of freedom and the burgeoning of texture in time--the wonder is that all the forms are not monsters, that there is beauty at all, grace gratuitous, pennies found, like mockingbird's free fall. Beauty itself is the fruit of the creator's exuberance that grew such a tangle, and the grotesques and horrors bloom from that same free growth, that intricate scramble and twine up and down the conditions of time." - pg. 148
+
+- "Evolution loves death more than it loves you or me. This is easy to write, easy to read, and hard to believe. The words are simple, the concept clear--but you don't believe it, do you? Nor do I. How could I, when we're both so lovable? Are my values then so diametrically opposed to those that nature preserves? This is the key point." - pg. 178
+
+- "We value the individual supremely, and nature values him not a whit." - pg. 178
+
+- "That something is everywhere and always amiss is part of the very stuff of creation." - pg. 183
+
+- "My own self-awareness had disappeared; it seems now almost as though, had I been wired with electrodes, my EEG would have been flat. I have done this sort of thing so often that I have lost self-consciousness about moving slowly and halting suddenly; it is second nature to me now. And I have often noticed that even a few minutes of this self-forgetfulness is tremendously invigorating. I wonder if we do not waste most of our energy just by spending every waking minute saying hello to ourselves." - pg. 200
+
+- "Yes, it's tough, it's tough, that goes without saying. But isn't waiting itself and longing a wonder, being played on by wind, sun, and shade?" - pg. 220
+
+- "For most creatures, being parasitized is a way of life--if you call that living." - pg. 231
+
+- "It must be, I think tonight, that in a certain sense only the newborn in this world are whole, that as adults we are expected to be, and necessarily, somewhat nibbled. It's par for the course." - pg. 241
+
+- "If I were blasted by a meteorite, I think, I could call it blind chance and die cursing. But we live creatures are eating each other, who have done us no harm. We're all in this Mason jar together, snapping at anything that moves." - pg. 242
+
+- "Here may not be the cleanest, newest place, but that clean timeless place that vaults on either side of this one is no place at all. 'Your fathers did eat manna in the wilderness, and are dead.' There are no more chilling, invigorating words than these of Christ's, 'Your fathers did eat manna in the wilderness, and are dead.'" - pg. 243
+
+- "I am a frayed and nibbled survivor in a fallen world, and I am getting along. I am aging and eaten and have done my share of eating too... Simone Weil says simply, 'Let us love the country of here below. It is real; it offers resistance to love.'" - pg. 245
+
+- "A sixteenth-century alchemist wrote of the philosopher's stone, 'One finds it in the open country, in the village and in the town. It is in everything which God created. Maids throw it on the street. Children play with it.'" - pg. 276-277
+
 ### Sam Shepard, *Day Out of Days* (2010)
 
 - "They say, these days, standing out on the rim of the Grand Canyon, the brightest lights in the night sky are not the stars in the heavens but the glow from casino neon in Las Vegas--one hundred and seventy-five miles away." - pg. 95
