@@ -12,6 +12,42 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### J. A. Baker, *The Peregrine* (1967)
+
+- "I have always longed to be a part of the outward life, to be out there at the edge of things, to let the human taint wash away in emptiness and silence as the fox sloughs his smell into the cold unworldliness of water; to return to the town as a stranger." - pg. 10
+
+- "It is a dying world, like Mars, but glowing still." - pg. 15
+
+- "The hardest thing of all to see is what is really there." - pg. 19
+
+- "The peregrine sees and remembers patterns we do not know exist: the neat squares of orchard and woodland, the endlessly varying quadrilateral shapes of fields. He finds his way across the land by a succession of remembered symmetries." - pg. 35
+
+- "The flat land was a booming void where nothing lived. Under the wind, a wren, in sunlight among fallen leaves in a dry ditch seemed suddenly divine, like a small brown priest in a parish of dead leaves and wintry hedges, devoted till death." - pg. 67
+
+- "Fear releases power. Man might be more tolerable, less fractious and smug, if he had more to fear." - pg. 73
+
+- "When hawks have gone from sight, you must look up into the sky; their reflection rises in the birds that fear them." - pg. 73
+
+- "Very still the estuary; misty skylines merged into white water; all peaceful, just the talk of the duck floating in with the tide." - pg. 76
+
+- "The valley sinks into mist, and the yellow orbital ring of the horizon closes over the glaring cornea of the sun. The eastern ridge blooms purple, then fades to inimical black. The earth exhales into the cold dusk. Frost forms in hollows shaded from the afterglow. Owls wake and call. The first stars hover and drift down. Like a roosting hawk, I listen to silence and gaze into the dark." - pg. 86
+
+- "Gales have taken the last of the leaves. Autumn is thrown down. Winter stands." - pg. 88
+
+- "The sky cleared after sunset. Far above, there was a sound like a distant striking of matches. Many rooks and jackdaws were calling as they flew slowly, peacefully, westward, high in the cold blue dusk, small as the first stars." - pg. 102
+
+- "The peregrine circled high in the dusk, and flickered out into the darkness of the hill. The hawkless valley bloomed with the soft voices of the waking owls." - pg. 106
+
+- "The most exciting thing about a hawk is the way in which it can create life from the still earth by conjuring flocks of birds into the air." - pg. 106
+
+- "Two gaunt herons tottered in the shallows of the brook where water still moves freely. A wave of turquoise froze into a kingfisher standing on a stone, then broke, and flowed away round a bend of the stream." - pg. 126-127
+
+- "Searing through the sky, the hawk in torment saw the land beneath him work and seethe with birds and come alive. Golden plover broke their wild cries along the green surface of the lower air. The peregrine hissed among them like a burning brand." - pg. 150
+
+- "High tide brimmed grey and glossy in the creek. The short-eared owl beat slowly out above its own reflection, looking like two owls striving to meet through the water's shining skin. One rose above the sea-wall as the other dived below." - pg. 154
+
+- "As so often on spring evenings, no birds sing near me, while all the distant trees and bushes ring with song. Like all human beings, I seem to walk within a hoop of red-hot iron, a hundred yards across, that sears away all life. When I stand still, it cools, and slowly disappears." - pg. 185
+
 ### Annie Dillard, *Pilgrim at Tinker Creek* (1974)
 
 - "We wake, if we ever wake at all, to mystery, rumors of death, beauty, violence.... 'Seem like we're just set down here,' a woman said to me recently, 'and don't nobody know why.'" - pg. 4
