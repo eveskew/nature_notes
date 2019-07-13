@@ -12,6 +12,12 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### Richard Powers, *The Overstory* (2018)
+
+- "To be human is to confuse a satisfying story with a meaningful one, and to mistake life for something huge with two legs. No: life is mobilized on a vastly larger scale, and the world is failing precisely because no novel can make the contest for the *world* seem as compelling as the struggles between a few lost people." - pg. 383
+
+- "Adam nudges Douglas and they walk some more, down into the teardrop of Bowling Green Park... They stand under the circle of camouflaged *Platanus*, that most resigned of eastern trees, on the spot where the island was sold, by people who listened to trees, to people who cleared them." - pg. 430-431
+
 ### J. A. Baker, *The Peregrine* (1967)
 
 - "I have always longed to be a part of the outward life, to be out there at the edge of things, to let the human taint wash away in emptiness and silence as the fox sloughs his smell into the cold unworldliness of water; to return to the town as a stranger." - pg. 10
