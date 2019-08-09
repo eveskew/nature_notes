@@ -12,6 +12,22 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### Lorraine Daston, *Against Nature* (2019)
+
+- "Nature has been invoked to emancipate, as the guarantor of human equality, and to enslave, as the foundation of racism." - pg. 3
+
+- "Nature simply is; it takes a human act of imposition or projection to transmute that 'is' into an 'ought.' On this view, we can draw no legitimate inference from how things happen to be to how things should be, from the facts of the natural order to the values of the moral order." - pg. 4
+
+- "Some scheme of categories is a precondition for both language and experience." - pg. 10
+
+- "During the Enlightenment, Newtonian natural philosophy and its vision of a universe governed by universal laws, everywhere and always the same, fired the imagination of philosophers and political reformers, who sought equivalent universal laws for the human realm." - pg. 29
+
+- "Nor do cultures that *do* draw a clear line between the natural and the human always accord greater majesty and dignity to nature. In early modern Europe, for example, human 'civilization' was regularly and favorably opposed to 'savage' nature." - pg. 58
+
+- "To glorify certain human values as 'natural,' whether in the liberal cause of human rights or the conservative one of social Darwinism, does not lend them one iota more of certainty or inevitability." - pg. 60
+
+- "Therefore, whichever norms are drawn from one sense of nature are more than likely to be in competition with, if not contradiction to, other norms drawn from nature. It was just this proliferation of norms in nature that led critics like Mill to throw up their hands in exasperation: nature will never speak with one voice, so why listen?" - pg. 61
+
 ### Richard Powers, *The Overstory* (2018)
 
 - "To be human is to confuse a satisfying story with a meaningful one, and to mistake life for something huge with two legs. No: life is mobilized on a vastly larger scale, and the world is failing precisely because no novel can make the contest for the *world* seem as compelling as the struggles between a few lost people." - pg. 383
