@@ -12,6 +12,26 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### John Steinbeck, *Travels with Charley* (1962)
+
+- "Everything we use comes in boxes, cartons, bins, the so-called packaging we love so much. The mountains of things we throw away are much greater than the things we use. In this, if in no other way, we can see the wild and reckless exuberance of our production, and waste seems to be the index... When an Indian village became too deep in its own filth, the inhabitants moved. And we have no place to which to move." - pg. 26
+
+- "Could it be that Americans are a restless people, a mobile people, never satisfied with where they are as a matter of selection? The pioneers, the immigrants who peopled the continent, were the restless ones in Europe. The steady rooted ones stayed home and are still there... Wouldn't it be unusual if we had not inherited this tendency?" - pg. 103-104
+
+- "It seemed to me that the earth was generous and outgoing here in the heartland, and perhaps the people took a cue from it." - pg. 106
+
+- "I must confess to a laxness in the matter of National Parks. I haven't visited many of them. Perhaps this is becasue they enclose the unique, the spectacular, the astounding--the greatest waterfall, the deepest canyon, the highest cliff, the most stupendous works of man or nature. And I would rather see a good Brady photograph than Mount Rushmore. For it is my opinion that we enclose and celebrate the freaks of our nation and of our civilization. Yellowstone National Park is no more representative of America than is Disneyland."
+
+  "One goes, not so much to see but to tell afterward." - pg. 161
+
+- [on redwoods] "For these are the last remaining members of a race that flourished over four continents as far back in geological time as the upper Jurassic period... And only these few are left--a stunning memory of what the world was like once long ago. Can it be that we do not love to be reminded that we are very young and callow in a world that was old when we came into it? And could there be a strong resistance to the certainty that a living world will continue its stately way when we no longer inhabit it?" - pg. 193
+
+- "We have in the past been forced into reluctant change by weather, calamity, and plague. Now the pressure comes from our biological success as a species. We have overcome all enemies but ourselves." - pg. 197
+
+- "The great concepts of oneness and of majestic order seem always to be born in the desert." - pg. 214
+
+- "And the desert, the dry and sun-lashed desert, is a good school in which to observe the cleverness and the infinite variety of techniques of survival under pitiless opposition. Life could not change the sun or water the desert, so it changed itself." - pg. 217
+
 ### Lorraine Daston, *Against Nature* (2019)
 
 - "Nature has been invoked to emancipate, as the guarantor of human equality, and to enslave, as the foundation of racism." - pg. 3
@@ -74,7 +94,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "We wake, if we ever wake at all, to mystery, rumors of death, beauty, violence.... 'Seem like we're just set down here,' a woman said to me recently, 'and don't nobody know why.'" - pg. 4
 
-- "They're a human product like rayon. They're like a field of shoes." - pg. 6 [on beef cows]
+- [on beef cows] "They're a human product like rayon. They're like a field of shoes." - pg. 6
 
 - "The answer must be, I think, that beauty and grace are performed whether or not we will sense them. The least we can do is try to be there." - pg. 10
 
