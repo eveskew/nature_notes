@@ -12,6 +12,20 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### Marilynne Robinson, *The Death of Adam* (1998)
+
+- "Even undiscovered species feel the effects of our stewardship. What a thing is man." - pg. 245
+
+- "All love is in great part affliction. My bond with my native landscape was an unnamable yearning, to be at home in it, to be chastened and acceptable, to be present in it as if I were not present at all." - pg. 246
+
+- "Those who are concerned about the world environment are, in my view, the abolitionists of this era, struggling to make an enlightened public aware that environmental depredation is an axe at the root of every culture, every freedom, every value. There is no group in history I admire more than the abolitionists, but from their example I conclude that there are two questions we must always ask ourselves -- what do we choose not to know, and what do we fail to anticipate?" - pg. 251
+
+- "Rich countries that dominate global media look very fine and civilized, but, after all, they have fairly ransacked the world for these ornaments and privileges and we all know it. This is not to say that they are worse than other nations, merely that the are more successful, for the moment, in sustaining wealth and prestige." - pg. 251
+
+- "Unless we can reestablish peace and order as values, and learn to see our own well-being in our neighbor's prosperity, we can do nothing at all for the rain forests and the koala bears. To pretend we can is only to turn our backs on more painful and more essential problems. It is deception and self-deception. It stirs a sad suspicion in me that we are of the Devil's party, without knowing it." - pg. 253
+
+- "Every environmental problem is a human problem. Civilization is the ecology being lost." - pg. 253-254
+
 ### John Steinbeck, *Travels with Charley* (1962)
 
 - "Everything we use comes in boxes, cartons, bins, the so-called packaging we love so much. The mountains of things we throw away are much greater than the things we use. In this, if in no other way, we can see the wild and reckless exuberance of our production, and waste seems to be the index... When an Indian village became too deep in its own filth, the inhabitants moved. And we have no place to which to move." - pg. 26
@@ -20,7 +34,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "It seemed to me that the earth was generous and outgoing here in the heartland, and perhaps the people took a cue from it." - pg. 106
 
-- "I must confess to a laxness in the matter of National Parks. I haven't visited many of them. Perhaps this is becasue they enclose the unique, the spectacular, the astounding--the greatest waterfall, the deepest canyon, the highest cliff, the most stupendous works of man or nature. And I would rather see a good Brady photograph than Mount Rushmore. For it is my opinion that we enclose and celebrate the freaks of our nation and of our civilization. Yellowstone National Park is no more representative of America than is Disneyland."
+- "I must confess to a laxness in the matter of National Parks. I haven't visited many of them. Perhaps this is because they enclose the unique, the spectacular, the astounding--the greatest waterfall, the deepest canyon, the highest cliff, the most stupendous works of man or nature. And I would rather see a good Brady photograph than Mount Rushmore. For it is my opinion that we enclose and celebrate the freaks of our nation and of our civilization. Yellowstone National Park is no more representative of America than is Disneyland."
 
   "One goes, not so much to see but to tell afterward." - pg. 161
 
