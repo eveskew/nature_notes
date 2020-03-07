@@ -12,6 +12,30 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+### Terry Tempest Williams, *Erosion: Essays of Undoing* (2019)
+
+- "By honoring wilderness, we honor beauty. Beauty is not peripheral, but at the core of what sustains us. Awe and wonder ignite our imagination. We are inspired. We witness the magnificent and miraculous nature of creation. We are humbled... The world is interconnected and interrelated. Wild nature is not only to be protected, but celebrated." - pg. 38
+
+- "A freedom of spirit depends on big, wide open spaces, the same spaces that gave birth to our nation and were home already to hundreds of other nations of indigenous people for generations. If we destroy what is outside us, we will destroy what is inside us. Something precious and original is lost." - pg. 40
+
+- "To designate wilderness is to honor the natural order of a place free from the hands of humans. Yet, the Wilderness Act is not without its irony. It was through human hands that this law came into being. And it will be through human hands that wilderness will continue." - pg. 40
+
+- "What if at the individual level, wildness takes the form of imagination? Imagination leads us to creative acts. Wilderness in the twenty-first century is not a site of nostalgia for what once was, but rather the seedbed of creativity for what we have yet to imagine." - pg. 47
+
+- "What lawmakers fear most, especially those financed by the energy industry, is the art of independent thinking, *the arc* of creative thinking. What power tries to control is the story, especially the story that sees the world as a complicated whole. What the oil and gas companies know is that if they can keep people isolated and the story fragmented, keep as little known as possible, and in some cases lie, then they can go about their business without protest or accountability." - pg. 89
+
+- "I believe in the marriage of our divine nature with all of life and the mysteries that sustain us. If the 'Creator' is in fact responsible for the 'Creation,' is Earth not enough?" - pg. 227
+
+- "How to love this world? And share it? We must make time, take the time to allow for natural diversions in our day. We have made a cult of busyness and in so doing we have forgotten the simple truth of paying attention to the view before us, between us, in a word, a cultivation of intimacy." - pg. 229
+
+- "Can residency be found in what we are connected to, rather than in what we exploit, ensnare, and exchange for our own gain by way of property, possessions, and prestige?" - pg. 306
+
+- "Weathering agents are among us... Wind does wear down stone." - pg. 307
+
+- "'The plain fact is that the planet does not need more successful people,' David Orr writes. 'But it does desperately need more peacemakers, healers, restorers, storytellers, and lovers of every kind. It needs people who live well in their places. It needs people of moral courage willing to join the fight to make the world habitable and humane. And these qualities have little to do with success as we have defined it.'" - pg. 311
+
+- "The poet Mark Doty once said to me, 'Anything, if loved enough and obsessed over enough, can become a way to talk about everything else.'" - pg. 315
+
 ### Marilynne Robinson, *The Death of Adam* (1998)
 
 - "Even undiscovered species feel the effects of our stewardship. What a thing is man." - pg. 245
