@@ -12,6 +12,18 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 ---
 
+
+### Jenny Offill, *Weather* (2020)
+
+- "Sylvia takes me to a swanky dinner with some people visiting from Silicon Valley. Some of them are donors to her podcast and she hopes to convince them to support a new foundation she has started. It wants to rewild half the earth.
+
+  But these men are not interested in such things. De-extinction is a better route, they think. Already they are exploring the genetic engineering that would be necessary. Woolly mammoths are of great interest to them. Saber-tooth tigers too...
+  
+  Later, Sylvia tells me her end of the table was even worse. The guy in the Gore-Tex jacket was going on and on about transhumanism and how we would soon shed these burdensome bodies and become part of the singularity. 'These people long for immortality but can't wait ten minutes for a cup of coffee,' she says." - pg. 37-39
+
+- "I swear the hippie letters are a hundred times more boring than the end-timer ones. They are all about composting toilets and water conseravtion and electric cars and how to live lightly on the earth while thinking ahead for seven generations. 'Environmentalists are so dreary,' I tell Sylvia. 'I know, I know,' she says." - pg. 51
+
+
 ### Terry Tempest Williams, *Erosion: Essays of Undoing* (2019)
 
 - "By honoring wilderness, we honor beauty. Beauty is not peripheral, but at the core of what sustains us. Awe and wonder ignite our imagination. We are inspired. We witness the magnificent and miraculous nature of creation. We are humbled... The world is interconnected and interrelated. Wild nature is not only to be protected, but celebrated." - pg. 38
@@ -36,6 +48,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "The poet Mark Doty once said to me, 'Anything, if loved enough and obsessed over enough, can become a way to talk about everything else.'" - pg. 315
 
+
 ### Marilynne Robinson, *The Death of Adam* (1998)
 
 - "Even undiscovered species feel the effects of our stewardship. What a thing is man." - pg. 245
@@ -44,11 +57,12 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "Those who are concerned about the world environment are, in my view, the abolitionists of this era, struggling to make an enlightened public aware that environmental depredation is an axe at the root of every culture, every freedom, every value. There is no group in history I admire more than the abolitionists, but from their example I conclude that there are two questions we must always ask ourselves -- what do we choose not to know, and what do we fail to anticipate?" - pg. 251
 
-- "Rich countries that dominate global media look very fine and civilized, but, after all, they have fairly ransacked the world for these ornaments and privileges and we all know it. This is not to say that they are worse than other nations, merely that the are more successful, for the moment, in sustaining wealth and prestige." - pg. 251
+- "Rich countries that dominate global media look very fine and civilized, but, after all, they have fairly ransacked the world for these ornaments and privileges and we all know it. This is not to say that they are worse than other nations, merely that they are more successful, for the moment, in sustaining wealth and prestige." - pg. 251
 
 - "Unless we can reestablish peace and order as values, and learn to see our own well-being in our neighbor's prosperity, we can do nothing at all for the rain forests and the koala bears. To pretend we can is only to turn our backs on more painful and more essential problems. It is deception and self-deception. It stirs a sad suspicion in me that we are of the Devil's party, without knowing it." - pg. 253
 
 - "Every environmental problem is a human problem. Civilization is the ecology being lost." - pg. 253-254
+
 
 ### John Steinbeck, *Travels with Charley* (1962)
 
@@ -70,6 +84,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "And the desert, the dry and sun-lashed desert, is a good school in which to observe the cleverness and the infinite variety of techniques of survival under pitiless opposition. Life could not change the sun or water the desert, so it changed itself." - pg. 217
 
+
 ### Lorraine Daston, *Against Nature* (2019)
 
 - "Nature has been invoked to emancipate, as the guarantor of human equality, and to enslave, as the foundation of racism." - pg. 3
@@ -86,11 +101,13 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "Therefore, whichever norms are drawn from one sense of nature are more than likely to be in competition with, if not contradiction to, other norms drawn from nature. It was just this proliferation of norms in nature that led critics like Mill to throw up their hands in exasperation: nature will never speak with one voice, so why listen?" - pg. 61
 
+
 ### Richard Powers, *The Overstory* (2018)
 
 - "To be human is to confuse a satisfying story with a meaningful one, and to mistake life for something huge with two legs. No: life is mobilized on a vastly larger scale, and the world is failing precisely because no novel can make the contest for the *world* seem as compelling as the struggles between a few lost people." - pg. 383
 
 - "Adam nudges Douglas and they walk some more, down into the teardrop of Bowling Green Park... They stand under the circle of camouflaged *Platanus*, that most resigned of eastern trees, on the spot where the island was sold, by people who listened to trees, to people who cleared them." - pg. 430-431
+
 
 ### J. A. Baker, *The Peregrine* (1967)
 
@@ -128,6 +145,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "As so often on spring evenings, no birds sing near me, while all the distant trees and bushes ring with song. Like all human beings, I seem to walk within a hoop of red-hot iron, a hundred yards across, that sears away all life. When I stand still, it cools, and slowly disappears." - pg. 185
 
+
 ### Annie Dillard, *Pilgrim at Tinker Creek* (1974)
 
 - "We wake, if we ever wake at all, to mystery, rumors of death, beauty, violence.... 'Seem like we're just set down here,' a woman said to me recently, 'and don't nobody know why.'" - pg. 4
@@ -164,11 +182,13 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 
 - "A sixteenth-century alchemist wrote of the philosopher's stone, 'One finds it in the open country, in the village and in the town. It is in everything which God created. Maids throw it on the street. Children play with it.'" - pg. 276-277
 
+
 ### Sam Shepard, *Day Out of Days* (2010)
 
 - "They say, these days, standing out on the rim of the Grand Canyon, the brightest lights in the night sky are not the stars in the heavens but the glow from casino neon in Las Vegas--one hundred and seventy-five miles away." - pg. 95
 
 - "And the highway itself, now broken up with tall yellow weeds and potholes deep enough to kill a Ford of any kind and, what's even more revealing, is that now the dead highway seems to be returning to the ancient buffalo trace beneath it where someone must have tried to copy the migrations of vast herds that once blackened the landscape. Maybe they felt the buffalo knew where they were going even if they themselves didn't have a clue." - pg. 107
+
 
 ### Peter Matthiessen, *The Snow Leopard* (1978)
 
@@ -177,6 +197,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 - "In a copse below Rohagaon, maple, sumac, locust, and wild grape evoke the woods of home, but the trees differ just enough from the familiar ones to make the wood seem dreamlike, a wildwood of children's tales, found again in a soft autumn haze. The wildwood bring on mild nostalgia, not for home or place, but for lost innocence--the paradise lost that, as Proust said, is the only paradise. Childhood is full of mystery and promise, and perhaps the life fear comes when all the mysteries are laid open, when what we thought we wanted is attained. It is just at the moment of seeming fulfillment that we sense irrevocable betrayal, like a great wave rising silently behind us... And surely this is the paradise of children, that they are at rest in the present, like frogs or rabbits." - pg. 127-128
 
 - "Drowned boulders knock beneath the torrent, and a rock thuds at my back. Transfixed by the bright gaze of a lizard, I become calm. This stone on which the lizard lies was under the sea when lizards first came into being, and now the flood is wearing it away, to return it once again into the oceans." - pg. 144
+
 
 ### Joan Didion, *Slouching Towards Bethlehem* (1968)
 
@@ -191,6 +212,7 @@ Many of the quotations here have been transcribed by hand, so do check the prima
 - "We went to get away from ourselves, and the way to do that is to drive, down through Nogales some day when the pretty green places pall and all that will move the imagination is some place difficult, some desert." - pg. 214
 
 - "It is hard for people who have not lived in Los Angeles to realize how radically the Santa Ana figures in the local imagination. The city burning is Los Angeles's deepest image of itself: Nathanael West perceived that, in *The Day of the Locus*; and at the time of the 1965 Watts riots what struck the imagination most indelibly were the fires. For days one could drive the Harbor Freeway and see the city on fire, just as we had always known it would be in the end. Los Angeles weather is the weather of catastrophe, of apocalypse, and, just as the reliably long and bitter winters of New England determine the way life is lived there, so the violence and the unpredictability of the Santa Ana affect the entire quality of life in Los Angeles, accentuate its impermanence, its unreliability. The wind shows us how close to the edge we are." - pg. 221
+
 
 ### Terry Tempest Williams, *An Unspoken Hunger* (1994)
 
